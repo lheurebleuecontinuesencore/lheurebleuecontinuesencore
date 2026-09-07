@@ -1,8 +1,11 @@
 <img width="856" height="155" alt="lheure" src="https://github.com/user-attachments/assets/82f7a416-f3f4-484b-8587-b9f23a8edd77" />
 
   my name is francis, this is an alt account :) i use he / she . i love my friends very much
+	
   i am  21 years old
+	
   i yumeship with austria, spain, and prussia and im soft sharing but austria is my main. i love him
+	
   i am a fictive in a diagnosed d.i.d system, and i prefer for doubles to not interact unless we are already friends or close or if my pony name says otherwise
 
 <img width="1058" height="965" alt="persistent" src="https://github.com/user-attachments/assets/420e15af-f8e5-4050-9381-55222b24d301" />
